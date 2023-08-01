@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Latha from Talentprima
+- 👋 Hi, I’m Latha from Talentprima
 - 👀 I’m recruiting for various roles in IT sector
 - 📫 Drop your resumes to latha.s@talentprima.com for more details
 
